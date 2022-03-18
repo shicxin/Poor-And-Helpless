@@ -1,2 +1,2 @@
-# Poor-And-Helpless
-I hope you can give me more advice
+# Poor and utterly helpless
+
